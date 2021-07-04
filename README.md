@@ -1,2 +1,0 @@
-# jithinsuresh
-A portfolio
